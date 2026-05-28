@@ -109,8 +109,17 @@ Our storage solutions are engineered for durability, flexibility, and long-term 
 
 ## Contact Us for Corrugated Bin Storage Solutions
 
-For product specifications, bulk supply requirements, or consultation regarding wholesale corrugated bin boxes and industrial storage systems, [**please contact BlueRose Packaging**](https://www.bluerosepackaging.com/contact/).
+For product specifications, bulk supply requirements, or consultation regarding wholesale corrugated bin boxes and industrial storage systems, [**contact BlueRose Packaging**](https://www.bluerosepackaging.com/contact/).
 
 Our team supports warehousing operations, manufacturing industries, logistics providers, retail distribution centers, automotive supply chains, and agricultural storage systems with scalable corrugated storage solutions designed for modern industrial needs.
 
 We also provide assistance with bulk procurement planning, warehouse optimization, and supply chain efficiency improvement strategies for Santa Ana and nationwide operations.
+
+### Service Areas for Packaging Industry
+
+| Tustin | Brea | Long Beach | Anaheim | Ontario |
+|--------|------|-------------|---------|----------|
+| Los Angeles | Fullerton | Chino | Gardena | Carson |
+| Wilmington | Santa Ana | Torrance | Irvine | Southern California |
+| Orange County | Riverside County | South Orange County | South Bay | — |
+
